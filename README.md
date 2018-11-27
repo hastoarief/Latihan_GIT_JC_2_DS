@@ -32,7 +32,7 @@ Waktu (jam) | Pola Makan | Alasan
 6 - 10 | 2 x | Normal
 24 | 0 x | Kucing anda mati
 
-Lagu agar kucing tidak bobok:
+Anda ingin kucing anda tidak tidur selama-lamanya? Berikut ada referensi lagu agar kucing tidak bobok:
 
 [![Don't sleep](https://vignette.wikia.nocookie.net/animal-jam-clans-1/images/a/a9/Scary-cat-20_0.jpg/revision/latest?cb=20160630012935)
 ](https://www.youtube.com/watch?v=I3mM9cdty9E)
